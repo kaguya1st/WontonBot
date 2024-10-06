@@ -79,3 +79,6 @@ OR
 #1 - Create session
 #2 - Run clicker
 ```
+[ JOINTELEGRAM CHANNEL](https://t.me/Pumpbtcxyz)
+| [FOLLOW MY TWITTER](https://x.com/Nhia1st)
+    
